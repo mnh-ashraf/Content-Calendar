@@ -13,4 +13,3 @@
 | 28/9 Mon | You Can Be Part of What’s Next | Facebook | Community | Static Post | — | — | — | — | Planned | — |
 | 30/9 Wed | Booth Announcement | Facebook & LinkedIn | Community | Static Post | _ | _ | _ | _ | Planned | _ |
 | 2/10 Fri | Volunteer Recruitment Is Open | Facebook & LinkedIn | Recruitment | Static Announcement | — | — | — | — | Planned | — |
-| 3/10 Sat | Still Thinking About It? | Facebook & LinkedIn | Recruitment | Static Post | — | — | — | — | Planned | — |
